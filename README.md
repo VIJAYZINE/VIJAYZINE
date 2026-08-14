@@ -2,11 +2,13 @@
 
 ## 🚀 About Me  
 
-📊 **Content Creator @YouTube** | 💼 **Chief Financial Officer (CFO)** | 🖥️ **Tally Prime & SAP FICO Expert**  
+📊 **Content Creator @YouTube**| 🖥️ **Tally Prime & SAP FICO Expert**  
 
-I am a **professional accountant** with over **10 years of experience** in **financial management and accounting systems**. My expertise lies in **Tally Prime & SAP FICO**, and I am passionate about helping businesses streamline their accounting processes.  
+Vijay Zine is an accounting professional, educator, and content creator with over 12 years of experience in financial management, taxation, and accounting systems. Recognized as a Tally Anchor by Tally Solutions, he is passionate about helping businesses, accountants, and aspiring professionals simplify complex accounting and compliance concepts through practical, easy-to-understand content.
 
-🎥 As the creator of **[Tally Tutorial](https://www.youtube.com/@TallyTutorial)**, I share **educational content** to help students and professionals **master Tally Prime, SAP FICO, and financial management principles**.  
+Over the years, Vijay has created educational resources on accounting, GST, taxation, TallyPrime, business finance, and emerging technologies, empowering thousands of learners to build confidence in managing business finances and adopting digital accounting practices. His content combines real-world business scenarios with actionable insights, making accounting more accessible for entrepreneurs, finance professionals, and students alike.
+
+Through his articles, training sessions, and digital content, Vijay continues to share practical knowledge that helps businesses improve financial efficiency, stay compliant, and make informed decisions. His mission is to make accounting simple, practical, and valuable for everyone. 
 
 🌍 Visit my website: **[vijayzine.com](https://vijayzine.com)**  
 
